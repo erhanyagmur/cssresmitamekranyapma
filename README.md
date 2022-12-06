@@ -1,1 +1,1 @@
-# cssresmitamekranyapma
+# css resmi tam ekranyapma
